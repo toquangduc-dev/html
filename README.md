@@ -1,13 +1,11 @@
 # html
-sdvsdf sdv sdvds dsfv
-sd vdfv dfb dfbd f
-df dfb fdb fg
-cdsc sdc sdc dsc sdc sdc sd csdc sdc sdc 
-sdcsdc sdc sdc sdc sdc sdcsdc sdcsdc sdc sdc 
-sd csdc sdc sdcsdcsdcsdcsdc sdcsdcsdc
-sdc sdwewe we 
-wefwe
-fwefwef we fwe
-f wef wefwefwef we f
-wef wef wef gbetgb ertgter
-ger gergthb tr gegewr4 gerg ergerg er
+day 1
+cretor acc github vs X acc
+viet tieu su, tinhs points
+tạo acc x mới cho hnay
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  
