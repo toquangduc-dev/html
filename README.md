@@ -9,6 +9,7 @@ nhảy làm gì?
 học nhanh
 làm nhiều
 test nhiều  
+làm quen bài học
 day 1
 cretor acc github vs X 
 viet tieu su, tinhs points
@@ -30,8 +31,3 @@ học nhanh
 làm nhiều
 test nhiều
 học web 3 
-day 1 học 1 bài
-bài 2 học 2 day
-đi học ở đâu ?
-mai học gì?
-làm sao làm bài tập
